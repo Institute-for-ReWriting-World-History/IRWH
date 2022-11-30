@@ -1,1 +1,1 @@
-![IRWH](https://github.com/Institute-for-ReWriting-World-History/IRWH/blob/e1c5387fc25462669c38271a75959d02f3d73baa/IRWH.png)
+![IRWH](https://github.com/Institute-for-ReWriting-World-History/IRWH/blob/c51b3cfecdfe692eadc10bcb38b79dd2a0df3933/thumbnail.png)

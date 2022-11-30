@@ -1,1 +1,1 @@
-![IRWH](https://github.com/Institute-for-ReWriting-World-History/IRWH/blob/c51b3cfecdfe692eadc10bcb38b79dd2a0df3933/thumbnail.png)
+![IRWH](https://github.com/Institute-for-ReWriting-World-History/IRWH/blob/92f2cf8db595a15251c7976e50e01017604c2b8a/MorrisFullerBenton-CenturyExpanded-1902-poster-by-HeatherLeonhardt-2013.jpg)
